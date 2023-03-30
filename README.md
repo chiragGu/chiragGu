@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Chirag!!<br>📚 I'm a recent Master's in Business Analytics Grad from the University of California, San Diego<br>👀 I’m interested in Data & Analytics and leverage them to solve crucial business problems<br>🌱 I’m currently building myself in the field of Data, learning something intriguing every day and looking for full-time opportunities<br>⌘ Apart from working I love to Sing, Explore new places while driving, and work out!<br>📫 Happy to connect: https://www.linkedin.com/in/chirag9806/
+👋 Hi, I’m Chirag!!<br>📚 I'm a recent Master's in Business Analytics Grad from the University of California, San Diego<br>👀 I’m interested in Data & Analytics and leverage them to solve crucial business problems<br>🌱 I’m currently building myself in the field of Data, learning something intriguing every day and looking for full-time opportunities<br>⌘ Apart from working I love to Sing, Explore new places while driving, and work out!<br>
 
 
 ## 🌐 Socials:
